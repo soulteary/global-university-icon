@@ -1,0 +1,3 @@
+# Global University ICONS
+
+Global universities and scientific research institutions: vector icons, school emblems, logos...
